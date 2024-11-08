@@ -1,6 +1,6 @@
-- Silly transfem
+- Trans (mwahahah I will destroy le planet)
 - Barely knows any code :P
-- Music taste is complete RNG (except country 🤢)
+- Loves gaming, music and staying up late
 - @Amzoral on literally everything lol
 
 <!---
