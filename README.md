@@ -1,4 +1,4 @@
-- Trans (mwahahah I will destroy le planet)
+- Transfem (mwahahah I will destroy le planet)
 - Barely knows any code :P
 - Loves gaming, music and staying up late
 - @Amzoral on literally everything lol
