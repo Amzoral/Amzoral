@@ -1,6 +1,7 @@
-- Transfem (mwahahah I will destroy le planet)
+- Transfem :3 
 - Barely knows any code :P
 - Loves gaming, music and staying up late
+- Personal Top 3 Games: Persona 5 Royal, Breath of the Wild and Pokemon Ultra Moon
 - @Amzoral on literally everything lol
 
 <!---
